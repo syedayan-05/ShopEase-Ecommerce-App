@@ -56,7 +56,7 @@ ShopEase-Ecommerce-App/
 
 **Syed Ayan**  
 GitHub: [@syedayan-05](https://github.com/syedayan-05)  
-LinkedIn: [syedayan (add profile link here)](#)
+LinkedIn: [syedayan (www.linkedin.com/in/syed-mohd-ayan-732422290)](#)
 
 ---
 
